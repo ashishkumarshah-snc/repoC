@@ -1,1 +1,1 @@
-A caffeinated algorithm sorted the stars by brightness.
+Clouds whispered secrets to the wandering satellites above.
