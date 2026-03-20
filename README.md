@@ -1,1 +1,1 @@
-The quantum fox leaped over the binary hedge at midnight.
+Parallel universes held a conference call about recursion.
